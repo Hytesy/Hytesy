@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Hyyesy 😁
+## Bem-vindo(a) ao perfil do Hytesy 😁
 
  <div>
    <a href="https://github.com/Hytesy">
